@@ -1,5 +1,5 @@
 # 💫 About Me:
-🚀 About Me<br>Hi, I'm Mithun Gupta! 👋<br><br>I love problem-solving 🧩, and it never bores me—in fact, I enjoy every challenge it brings! <br>My goal is to merge my technical strengths 💻 with my creative thinking 🎨 to contribute to society.<br>In this journey, I believe I'll find both happiness 😊 and a fulfilling way of living.<br><br>Let's connect and build something meaningful! 🔗✨<br><br>
+Hi, I'm Mithun Gupta! 👋<br><br>I love problem-solving 🧩, and it never bores me—in fact, I enjoy every challenge it brings! <br>My goal is to merge my technical strengths 💻 with my creative thinking 🎨 to contribute to society.<br>In this journey, I believe I'll find both happiness 😊 and a fulfilling way of living.<br><br>Let's connect and build something meaningful! 🔗✨<br><br>
 
 
 ## 🌐 Socials:
